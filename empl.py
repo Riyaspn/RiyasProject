@@ -1,6 +1,0 @@
-assd dfadf
-assd
- sddsDSDSFD
- GF GFGFSGSGDE
-F GFFFFFFS
-GFSSSSSSSSSSSSSG 
